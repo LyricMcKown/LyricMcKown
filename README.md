@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LyricMcKown
 - 👀 I’m interested in roblox scripts
-- 🌱 I’m currently learning how to make scripta
+- 🌱 I’m currently learning how to make scripts
 - 💞️ I’m looking to collaborate on nothing right now
 - 📫 How to reach me my email lyricmckownr32@gmsil.com
 
